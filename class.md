@@ -1,0 +1,2 @@
+Amal
+Meta Database Engineer Professional Certificate
